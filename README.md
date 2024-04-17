@@ -7,4 +7,4 @@
 - 🤔 I’m looking for help with
 - 📫 How to reach me on [linkedIn](www.linkedin.com/in/joel-igbi-6ba33427)
 - 😄 Pronouns;he/him
-- ⚡ Fun fact:Exploring opportunities that can enhance my skill and improve my abilities as a data 
+- ⚡ Fun fact:Exploring opportunities that can enhance my skill and improve my abilities as a data analyst
